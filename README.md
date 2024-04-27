@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any fun projects
 - 📫 How to reach me ...
 - 😄 Pronouns: her / she
-- ⚡ Fun fact: I have dance yotube channel
+- ⚡ Fun fact: I have a dance yotube channel
 
 <!---
 akhilebiyela/akhilebiyela is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
